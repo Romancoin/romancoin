@@ -1,0 +1,2 @@
+# romancoin
+New Cryptocurrency  
